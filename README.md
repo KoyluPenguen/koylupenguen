@@ -4,6 +4,6 @@
     
   <div align="center">
    <a href="https://discord.com/users/533715154936922113" target="_blank">
-      <img src="https://penguen.is-inside.me/xYMYoszP.png">
+      <img src="https://penguen.why-am-i-he.re/5jDm7HNsc.png">
    </a>
 </div>
